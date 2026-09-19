@@ -236,4 +236,4 @@ Mass Effect is provided as a complete free version, offering all features and up
 Don't miss out on this opportunity! **Download Mass Effect now and embark on an unforgettable journey through the galaxy!**
 
 ---
-**Last updated:** 2026-09-19 16:20:29 UTC
+**Last updated:** 2026-09-19 19:13:03 UTC
